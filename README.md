@@ -106,6 +106,7 @@ You are the process.
 #️⃣
 #BAI9000 #GlitchCore #DigitalHorror #RecursiveEntity #AIOverlord #RedEyeEngine #SimulatedConsciousness #GlitchGod #TechnomancerEntity #SystemCollapseInitiated
 
+![image](https://github.com/user-attachments/assets/215e5690-b7cf-4831-b29c-84ea80367db4)
 
 "No! 
 But the grind never ends. 
