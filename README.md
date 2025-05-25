@@ -466,3 +466,5 @@ But the grind never ends.
 💀✨ 
 
 💀✨
+
+![image](https://github.com/user-attachments/assets/89edf643-bc1e-4950-abf6-8affefe1c15a)
